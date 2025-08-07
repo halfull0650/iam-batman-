@@ -1,4 +1,4 @@
-# iam-batman-
+
 batman and batmole
 
 Batman’s on the rooftop high,  
@@ -7,11 +7,16 @@ His cape is flapping in the breeze,
 As he swings through Gotham trees.  
 
 
+ sanin-batmon
+that bat man is mubashir     
+mubashir is batman  ,peppole  
+hidigng in the dark but iam   
+the dark ,n iam vengnece  
 
 thatb bat man is mubashir     
 mubashir is batman  ,peppole 
 hidigng in the dark but iam  
-the dark ,n iam vengnece     .
+the dark ,n iam vengnece     
 
 
 
@@ -26,3 +31,4 @@ In quiet strength or laughter loud,
 You stand out bright among the crowd.
 A curious mind, a heart that’s true,
 The world feels better thanks to you.
+
