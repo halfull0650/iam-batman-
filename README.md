@@ -22,4 +22,7 @@ In the night, my story's told.
 With silent steps, I fight the crime,
 A shadow moving out of time.
 
-hiii how are u
+In quiet strength or laughter loud,
+You stand out bright among the crowd.
+A curious mind, a heart that’s true,
+The world feels better thanks to you.
