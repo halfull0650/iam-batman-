@@ -8,7 +8,7 @@ As he swings through Gotham trees.
 
 
 
-thatb bat man is mubashir 
+thatb bat man is mubashir     
 mubashir is batman  ,peppole 
 hidigng in the dark but iam 
- the dark ,n iam vengnece 
+the dark ,n iam vengnece 
